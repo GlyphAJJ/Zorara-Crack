@@ -2,7 +2,6 @@ Join my server: discord.gg/C6KDYq9Peb
 Please star my repo
 
 credit to ryxinc for some help EVERYONE GO CHECK HIM OOUT RIGHT NOW
-https://www.instagram.com/ryxinc/
 https://www.youtube.com/@OGryxinc/videos
 
 # Links:
